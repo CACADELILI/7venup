@@ -2,7 +2,7 @@
 <img src="https://c.tenor.com/NpDW-ojFKmUAAAAC/imposter-sus.gif">
 </p>
 <p align="center">
-     pro developper 11 yo
+     ROCKSTAR
 <p align="center">  
 <img src="https://komarev.com/ghpvc/?username=DictateurMaxou&color=grey">
 </p>
