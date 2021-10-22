@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="https://c.tenor.com/NpDW-ojFKmUAAAAC/imposter-sus.gif">
+<img src="http://pngimg.com/uploads/monkey/monkey_PNG18737.png">
 </p>
 <p align="center">
      ROCKSTAR
