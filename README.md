@@ -1,5 +1,5 @@
 <p align="center">  
-<img src="http://pngimg.com/uploads/monkey/monkey_PNG18737.png">
+<img src="https://cdn.discordapp.com/attachments/898867755300843590/900837930300506142/unknown.png">
 </p>
 <p align="center">
      ROCKSTAR
